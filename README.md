@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Yuliya Balzhinimaeva, 24 y.o.
-- 📚 I’m currently learning React library.
 - 📧 How to reach me: yulka.balzhinimaeva@gmail.com 
                        
 
