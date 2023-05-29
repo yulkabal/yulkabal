@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Yuliya Balzhinimaeva, 24 y.o.
+- 👋 Hi, I’m Yuliya Balzhinimaeva, 25 y.o.
 - 📧 How to reach me: yulka.balzhinimaeva@gmail.com 
                        
 
